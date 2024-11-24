@@ -23,7 +23,7 @@ I'm always open to new learning opportunities and collaborating on projects as I
 
 Feel free to reach out to me for any advice, collaboration, or just to chat about tech.
 
-- 📧 Email: [osaigbovoomere001@gmail.com](mailto:osaigbovoomere001@gmail.com)
+- 📧 Email: [DEODNiL](mailto:deodnil@outlook.com)
 - 🐦 Twitter: [DEODNiL](https://twitter.com/DEODNiL)
 
 ---
