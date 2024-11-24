@@ -25,6 +25,7 @@ Feel free to reach out to me for any advice, collaboration, or just to chat abou
 
 - 📧 Email: [DEODNiL](mailto:deodnil@outlook.com)
 - 🐦 Twitter: [DEODNiL](https://twitter.com/DEODNiL)
+- 🦋 Bluesky: [DEODNiL](https://deodnil.bsky.social)
 
 ---
 
