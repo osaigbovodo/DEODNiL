@@ -23,9 +23,9 @@ I'm always open to new learning opportunities and collaborating on projects as I
 
 Feel free to reach out to me for any advice, collaboration, or just to chat about tech.
 
-- 📧 Email: [DEODNiL](mailto:deodnil@outlook.com)
-- 🐦 Twitter: [DEODNiL](https://twitter.com/DEODNiL)
-- 🦋 Bluesky: [DEODNiL](https://deodnil.bsky.social)
+- 📧 [Mail](mailto:deodnil@outlook.com)
+- 🐦 [X(formerly Twitter)](https://twitter.com/DEODNiL)
+- 🦋 [Bluesky](https://deodnil.bsky.social)
 
 ---
 
